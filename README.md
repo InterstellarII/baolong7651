@@ -1,1 +1,1 @@
-Thank you to Duolingo Pro
+#Wearetheking
